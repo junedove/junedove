@@ -11,7 +11,7 @@
 
  [fluffle](https://fluffle.cc/wack)ㅤ[straw](https://signaltheescape.straw.page/)ㅤ[atabook](https://incelbur.atabook.org/)ㅤ[match](https://fluffle.cc/eddisode)ㅤ[prns.cc](https://pronouns.cc/@softbur)
 
- hi im tommy i like dsmp eddsworld and music )) im either with my matespirit or my friends.
+ hi im tommy or strife i like dsmp eddsworld and music )) either with my matespirit or friends.
   
 </details>
 
