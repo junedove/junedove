@@ -9,7 +9,7 @@
 <details>
   <summary>ㅤ</summary>
 
- [fluffle](https://fluffle.cc/wack)ㅤ[match](https://fluffle.cc/fudgetunnel)ㅤ[straw](https://signaltheescape.straw.page/)ㅤ[atabook](https://incelbur.atabook.org/)ㅤ[prns.cc](https://pronouns.cc/@chevelle)
+ [fluffle](https://fluffle.cc/wack)ㅤ[match](https://fluffle.cc/fudgetunnel)ㅤ[straw](https://signaltheescape.straw.page/)ㅤ[ata](https://incelbur.atabook.org/)ㅤ[prns.cc](https://pronouns.cc/@chevelle)
 
  hi im tommy or strife i like dsmp eddsworld and music )) either with my matespirit or friends.
   
